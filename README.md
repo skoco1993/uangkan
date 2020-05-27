@@ -1,0 +1,2 @@
+# uangkan
+Mencari uang
